@@ -1,3 +1,3 @@
-# hi im yaeli:)
+# hi i'm yaeli:)
 shalom
 cool
